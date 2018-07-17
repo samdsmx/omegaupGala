@@ -1,0 +1,2 @@
+# omegaupGala
+GitHub Pages
